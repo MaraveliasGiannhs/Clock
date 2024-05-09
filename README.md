@@ -1,1 +1,0 @@
-![Uploading clock.gif…]()
